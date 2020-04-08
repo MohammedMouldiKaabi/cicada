@@ -8,3 +8,6 @@
 
 الزر الأخضر للتحميل 
 "clone or download"
+أو من هنا 
+
+http://www.mediafire.com/file/fupfxuvyntqpvr3/cicada.html/file
